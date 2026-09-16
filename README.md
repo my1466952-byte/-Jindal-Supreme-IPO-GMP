@@ -148,10 +148,4 @@ The **Jindal Supreme IPO GMP** can help investors understand the unofficial mark
 
 However, GMP is only one part of IPO analysis. Investors should also review the company's financial performance, valuation, business model, IPO objectives and risk factors before making an investment decision.
 
-For the latest IPO information, investors should verify important dates, issue details and allotment information through official sources.
-
-### Related IPO Information
-
-For more details about **Jindal Supreme IPO GMP**, visit:
-
-[Finowings – Jindal Supreme IPO GMP](https://www.finowings.com/IPO/jindal-supreme-india-ipo)
+For the latest IPO information, investors should verify important dates, issue details and allotment information through official sources
